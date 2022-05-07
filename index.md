@@ -2,5 +2,5 @@
 
 Information about everything pertaining to a conscious person, not necessarily human.
 
-- English
-- Español
+- English(./english/content.md)
+- [Español](./Español/contenido.md)
