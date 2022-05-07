@@ -1,6 +1,4 @@
-# Conscious person
-
-## Content
+# Content
 
 1. Biographies
 2. History
