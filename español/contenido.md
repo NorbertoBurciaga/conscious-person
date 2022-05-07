@@ -13,5 +13,5 @@
 7. Profesías
 8. Recomendaciones
    1. De vida
-   2. Sociales
+   2. [Sociales](./recomendaciones-sociales.md)
 9. Tecnología
