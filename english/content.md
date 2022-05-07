@@ -2,20 +2,16 @@
 
 ## Content
 
-1. Biographis
+1. Biographies
 2. History
 3. Books
 4. Laws
-
-   4.1. Creational
-   4.2. Natural
-
+   1. Creational
+   2. Natural
 5. Places
 6. Predictions
 7. Prophesies
 8. Recommendations
-
-   8.1. Life
-   8.2. Social
-
+   1. Life
+   2. Social
 9. Tecnology
