@@ -6,10 +6,12 @@
 2. Historia
 3. Libros
 4. Leyes
-  4.1. Creacionales
-  4.2. Naturales
+   1. Creacionales
+   2. Naturales
 5. Lugares
 6. Predicciones
 7. Profesías
 8. Recomendaciones
-9. Tecnología 
+   1. De vida
+   2. Sociales
+9. Tecnología
