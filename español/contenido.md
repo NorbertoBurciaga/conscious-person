@@ -1,6 +1,4 @@
-# Persona conciente
-
-## Contenido
+# Contenido
 
 1. Biografías
 2. Historia
