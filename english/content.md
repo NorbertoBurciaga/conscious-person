@@ -11,5 +11,5 @@
 7. Prophesies
 8. Recommendations
    1. Life
-   2. Social
+   2. [Social](./social-recommendations.md)
 9. Tecnology
