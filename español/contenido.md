@@ -12,6 +12,6 @@
 6. Predicciones
 7. Profesías
 8. Recomendaciones
-   1. De vida
+   1. [De vida](./recomendaciones-de-vida.md)
    2. [Sociales](./recomendaciones-sociales.md)
 9. Tecnología
