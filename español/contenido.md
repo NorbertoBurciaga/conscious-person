@@ -4,7 +4,7 @@
 
 1. Biografías
 2. Historia
-3. Libros
+3. [Referencias](./referencias.md)
 4. Leyes
    1. Creacionales
    2. Naturales

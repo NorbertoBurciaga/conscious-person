@@ -4,7 +4,7 @@
 
 1. Biographies
 2. History
-3. Books
+3. [References](./references.md)
 4. Laws
    1. Creational
    2. Natural
