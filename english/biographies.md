@@ -2,7 +2,7 @@
 
 #  Biographies
 
-- Jmmanuel
+- [Jmmanuel](./biographies/jmmanuel.md)
 
 
 ## Return to
