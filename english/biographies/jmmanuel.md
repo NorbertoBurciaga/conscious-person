@@ -7,5 +7,5 @@
 
 ## Return To
 
-[Biographies](../biographies.md)
-[Content](../content.md)
+- [Biographies](../biographies.md)
+- [Content](../content.md)

@@ -7,5 +7,5 @@
 
 ## Regresar a
 
-[Contenido](../biografias.md)
-[Contenido](../contenido.md)
+- [Biografías](../biografias.md)
+- [Contenido](../contenido.md)
