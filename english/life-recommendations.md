@@ -3,3 +3,8 @@
 # Life recommendations
 
 - Learn the truth-teaching from the laws and recommendations of Creation.[Got 4:86]
+
+
+## Return to
+
+[Content](./content.md)

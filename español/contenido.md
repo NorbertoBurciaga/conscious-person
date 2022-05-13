@@ -2,7 +2,7 @@
 
 # Contenido
 
-1. Biografías
+1. [Biografías](./biografias.md)
 2. Historia
 3. [Referencias](./referencias.md)
 4. Leyes

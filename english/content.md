@@ -2,7 +2,7 @@
 
 # Content
 
-1. Biographies
+1. [Biographies](./biographies.md)
 2. History
 3. [References](./references.md)
 4. Laws
