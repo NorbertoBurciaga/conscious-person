@@ -1,4 +1,4 @@
-| [es](../español/biografías/jmmanuel.md) | **en** |
+| [es](../español/biografias/jmmanuel.md) | **en** |
 
 #  Jmmanuel
 
