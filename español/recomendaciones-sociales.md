@@ -8,7 +8,7 @@
 - Si el que se opone a la verdad busca de tu ayuda para engañarte, no debes apartarte y debes exhortarlo a la verdad hablándole con firmesa de su pensamiento erroneo para que reflexione y busque el camino de la verdad. [GoT 4:89]
 - Habitar en grupos para no estar solos en la masa de los ignorantes de la verdad. [GoT 4:96]
 - Enseñar la doctrina de verdad, vida y espíritu solo donde se solicite y se desee para no ser acosados y no hacer proselitismo. [GoT 4:96]
-
+- Reconocer como amigos a aquellos con los que hacen tratos para obtener grandes éxitos [GoT 4:98]
 
 ## Regresar a
 
