@@ -5,6 +5,14 @@
 <a name="GoT"></a>
 - [GoT] Kelch der Wahrheit - El cáliz de la verdad - Goblet of Truth
 
+<a name="DeD"></a>
+- [DeD] [Dekalog - Dodekalog](https://shop.figu.org/b%C3%BCcher/dekalog-dodekalog?language=en)
+  Meier, Billy Eduard Albert
+  Editor: Wassermannzeit
+  CH-8495 Hinterschmidrüti ZH
+  1975
+  https://nebula.wsimg.com/cac33b106920d52886151223a420b67d?AccessKeyId=C0F879B9BB56750BC6EE&disposition=0&alloworigin=1
+
 
 ## Regresar a
 
