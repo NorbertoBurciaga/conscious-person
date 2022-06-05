@@ -8,6 +8,9 @@
 - Encontrar la verdad para volverse a ella. [GoT 4:90](./referencias.md/#GoT)
 - Ser juez de uno mismo y de lo que se discute dentro de uno mismo, para ser conocedor de la verdad. [GoT 4:92](./referencias.md/#GoT)
 - No matar en degeneración, solo cuando la necesidad de proteger la vida de uno mismo o la del prójimo lo requiera. [Got 4:93](./referencias.md/#GoT)
+- Dejar que los justos luchen con honestidad, equidad, integridad, respeto, y reverencia para no desechar tu vida en bien de la verdad, sino estar quietos y silenciosos con la verdad dentro de tí para que tus adversarios no te hagan sufrir. [GoT 4:99]
+
+
 
 ## Regresar a
 
