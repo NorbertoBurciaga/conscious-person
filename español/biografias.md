@@ -1,6 +1,6 @@
 | **es** | [en](../english/biographies.md)
 
-#  Biografías
+# Biografías
 
 - [Jmmanuel](./biografías/jmmanuel.md)
 

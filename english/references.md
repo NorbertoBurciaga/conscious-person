@@ -1,6 +1,6 @@
 | [es](../español/referencias.md) | **en** |
 
-#  References
+# References
 
 - [GoT] Kelch der Wahrheit - Goblet of Truth
 a name="DeD"></a>

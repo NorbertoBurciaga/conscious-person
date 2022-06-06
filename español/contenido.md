@@ -2,16 +2,18 @@
 
 # Contenido
 
-1. [Biografías](./biografias.md)
-2. Historia
-3. [Referencias](./referencias.md)
-4. Leyes
-   1. Creacionales
-   2. Naturales
-5. Lugares
-6. Predicciones
-7. Profesías
-8. Recomendaciones
-   1. [De vida](./recomendaciones-de-vida.md)
-   2. [Sociales](./recomendaciones-sociales.md)
-9. Tecnología
+ 1. Definiciones(./definiciones.md)
+ 2. [Biografías](./biografias.md)
+ 3. Lugares
+ 4. Historia
+ 5. Leyes
+    1. Creacionales
+    2. Naturales
+ 6. Recomendaciones
+    1. [De vida](./recomendaciones-de-vida.md)
+    2. [Sociales](./recomendaciones-sociales.md)
+ 7. Predicciones
+ 8. Profesías
+ 9. Ciencia
+10. Tecnología
+11. [Referencias](./referencias.md)

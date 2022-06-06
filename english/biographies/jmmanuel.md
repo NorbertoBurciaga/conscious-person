@@ -1,6 +1,6 @@
 | [es](../español/biografias/jmmanuel.md) | **en** |
 
-#  Jmmanuel
+# Jmmanuel
 
 
 
