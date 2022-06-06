@@ -2,7 +2,7 @@
 
 # Content
 
- 1. Definitions (./definitions.md)
+ 1. [Definitions](./definitions.md)
  2. [Biographies](./biographies.md)
  3. Places
  4. History
