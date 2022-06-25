@@ -13,7 +13,7 @@
     1. [De vida](./recomendaciones-de-vida.md)
     2. [Sociales](./recomendaciones-sociales.md)
  7. Predicciones
- 8. Profesías
+ 8. Profecías
  9. Ciencia
 10. Tecnología
 11. [Referencias](./referencias.md)
