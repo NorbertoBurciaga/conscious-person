@@ -15,6 +15,18 @@
   ISBN 978-0-9918573-3-3
   (https://creationaltruth.org/Library/FIGU-Books/Talmud-Jmmanuel)
 
+<a name="OM"></a>
+- [OM] Meier, 'Billy' Eduard Albert. (1987/2011) OM Omfalon Murado. Wassermannzeit. 
+  (https://shop.figu.org/b%C3%BCcher/om?language=en)
+
+<a name="FB68"></a>
+- [FB68] Meier, 'Billy' Eduard Albert. (2009) FIGU-Bulletin Nr. 68: "What is actually to be understood by the term creation?" ("Was ist eigentlich unter dem Begriff Schöpfung zu verstehen?"). 
+  (https://www.figu.org/ch/files/downloads/bulletin/figu_bulletin_68.pdf)
+
+<a name="FIGU"></a>
+- [FIGU] The teaching of the spirit.
+  (http://es.figu.org/ensenanza_del_espiritu/la_ensenanza_del_espiritu)
+
 
 ## Return to
 

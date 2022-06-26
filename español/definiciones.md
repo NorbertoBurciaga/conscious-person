@@ -3,7 +3,16 @@
 # Definiciones
 
 <a name="creacion"></a>
-- **Creación** - "La Creación es el SER y el NO SER de la vida. Es la más inmensa masa de energía espiritual del universo. Es espíritu en estado puro e inconmensurable en su sabiduría, en su conocimiento, en su amor y en su armonía y verdad. La Creación es algo espiritualmente dinámico, un espíritu-inteligencia-energía pura, inaprehensible para los seres humanos, que prevalece sobre todo, siempre activa, creativa, en imparable evolución, todo reunido en sí mismo, sabiduría y amor." [[Dekalog/Dodekalog](./referencias.md#DD)]
+- **Creación** - Es una forma de existencia ([Wesenheit](#wesenheit)) de inmensa masa de energía neutral espiritual. [[OM 1:1](./referencias.md#om)] [[FIGU-Bulletin 68](./referencias.md#FB68)] "Es espíritu en estado puro e inconmensurable en su sabiduría, conocimiento, amor y en su armonía y verdad." [[Dekalog/Dodekalog](./referencias.md#DD)] Como forma de energía espiritual natural, la Conciencia Universal de la Creación es una forma evolutiva puramente causal de energía espiritual de la cual se dan las leyes y mandamientos naturales. Todo en la Conciencia Universal de la Creación está absolutamente equilibrado, por lo tanto es positivo-neutral en toda forma ya que contiene el 100% de positivo y 100% de negativo resultando en un equilibrio absoluto de las dos energías. [[OM 1:1](./referencias.md#om)] [[FIGU-Bulletin 68](./referencias.md#FB68)] 
+
+<a name="universo"></a>
+- **Universo** - También es llamado [Creación](#creacion) o Conciencia Universal. [[FIGU](./referencias.md#FIGU)] 
+    
+<a name="wesen"></a>
+- **Wesen** - "Es una forma de vida de existencia independiente con su propia individualidad y personalidad en un impulso, una forma de conciencia instintiva o conciente que está específicamente dirigida hacia todas las posibilidades de la evolución, y con su propio impulso físico, psíquico, conciente, parte conciente, inconciente o formas de desarrollo relacionadas al instinto (el ser humano, animales, criaturas y plantas)." [[FIGU-Bulletin 68](./referencias.md#FB68)]
+
+<a name="wesenheit"></a>
+- **Wesenheit** - (escencialidad, substancialidad, sustancia) "Es una forma de existencia inmaterial o material sin una posibilidad autodeterminante de evolución, donde sin embargo esta posibilidad puede ser dada hasta cierto punto, como con la Conciencia de Creación Universal, ciertas energías, piedras, agua y gases etc." [[FIGU-Bulletin 68](./referencias.md#FB68)]
 
 
 ## Regresar a
