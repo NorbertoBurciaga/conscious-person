@@ -27,6 +27,10 @@
 - [FIGU] La Enseñanza del Espíritu.
   (http://es.figu.org/ensenanza_del_espiritu/la_ensenanza_del_espiritu)
 
+<a name="VAA"></a>
+- [VAA] Boletín informativo Voz de la Era de Acuario (Stimme der Wassermannzeit) No. 89.  (Diciembre 1993). 
+(https://ca.figu.org/what-is-the-creation-.html)
+
 ## Regresar a
 
 [Contenido](./contenido.md)

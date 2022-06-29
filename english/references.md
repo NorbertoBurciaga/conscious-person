@@ -27,6 +27,10 @@
 - [FIGU] The teaching of the spirit.
   (http://es.figu.org/ensenanza_del_espiritu/la_ensenanza_del_espiritu)
 
+<a name="VAA"></a>
+- [VAA] Voice of the Aquarian Age newsletter (Stimme der Wassermannzeit) No. 89.  (December 1993).
+(https://ca.figu.org/what-is-the-creation-.html)
+
 
 ## Return to
 
