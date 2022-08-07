@@ -2,7 +2,7 @@
 
 # Life recommendations
 
-- You shall have no other mights and no gods, tin gods and holy ones next to the Creation.[[Dekalog/Dodekalog 1](./references.md#DD)]
+- You shall have no other mights and no gods, tin gods and holy ones next to the [Creation](./definitions.md/#creation).[[Dekalog/Dodekalog 1](./references.md#DD)]
 - Learn the truth-teaching from the laws and recommendations of [Creation](./definitions.md/#creation).[[Got 4:86](./references.md/#GoT)]
 - Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)]
 - Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)]
@@ -13,6 +13,8 @@
 - Fight for the cause of [Creation](./definitions.md/#creation) with truth, love, harmony and in peace and freedom. [[GoT 4:101](./references.md/#GoT)]
 - Avoid fighting against the truth out of fear, because the fear will increase even more and your advantage will only be slight and of short duration.[[GoT 4:102](./references.md/#GoT)] [[GoT 4:103](./references.md/#GoT)]
 - Be aware that you cannot avoid death as it is inevitable for every living being so that it will meet you in good and not frighten you when you face it. [[GoT 4:104](./references.md/#GoT)]
+- Good or bad if it doesn't come from outside, it's due to your conduct, you will always get what's coming to you for what you deserve.[[GoT 4:105](./references.md/#GoT)]
+
 
 ## Return to
 

@@ -2,7 +2,7 @@
 
 # Recomendaciones de vida
 
-- No tendrás otros poderes, ni dioses, ídolos y santos junto a la Creación.[[Dekalog/Dodekalog 1](./referencias.md/#DD)]
+- No tendrás otros poderes, ni dioses, ídolos y santos junto a la [Creación](./definiciones.md/#creacion).[[Dekalog/Dodekalog 1](./referencias.md/#DD)]
 - Conocer la doctrina de la verdad a partir de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion).[[GoT 4:86](./referencias.md/#GoT)]
 - Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)]
 - Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)]
@@ -12,7 +12,9 @@
 - Dejar que los justos luchen con honestidad, equidad, integridad, respeto, y reverencia para no desechar tu vida en bien de la verdad, sino estar quietos y silenciosos con la verdad dentro de tí para que tus adversarios no te hagan sufrir. [[GoT 4:99](./referencias.md/#GoT)]
 - Luchar por la causa de la [Creación](./definiciones.md/#creacion) con verdad, amor, armonía y en paz y libertad. [[GoT 4:101](./referencias.md/#GoT)]
 - Evitar luchar en contra de la verdad por temor, porque el temor aumentará aún mas y su ventaja será escasa y de corta duración.[[GoT 4:102](./referencias.md/#GoT)] [[GoT 4:103](./referencias.md/#GoT)]
-- Se conciente de que no puedes evitar la muerte ya que es inevitable para todo ser viviente para que te encuentre en el bien y no te asustes cuando te enfrentes a ella. [[GoT 4:104](./referenciass.md/#GoT)]
+- Se conciente de que no puedes evitar la muerte ya que es inevitable para todo ser viviente para que te encuentre en el bien y no te asustes cuando te enfrentes a ella.[[GoT 4:104](./referencias.md/#GoT)]
+- Lo bueno o lo malo si no viene de afuera, se debe a tu conducta, siempre obtendrás lo que te corresponde por lo que te mereces.[[GoT 4:105](./referencias.md/#GoT)]
+
 
 ## Regresar a
 
