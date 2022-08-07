@@ -12,7 +12,7 @@
 - Let the righteous strive with honesty, fairness, integrity, esteem and deference for not to throw away your life for the sake of the truth, but to be quiet and silent with the truth within you so that your adversaries will not make you suffer. [[GoT 4:99](./references.md/#GoT)]
 - Fight for the cause of [Creation](./definitions.md/#creation) with truth, love, harmony and in peace and freedom. [[GoT 4:101](./references.md/#GoT)]
 - Avoid fighting against the truth out of fear, because the fear will increase even more and your advantage will only be slight and of short duration.[[GoT 4:102](./references.md/#GoT)] [[GoT 4:103](./references.md/#GoT)]
-
+- Be aware that you cannot avoid death as it is inevitable for every living being so that it will meet you in good and not frighten you when you face it. [[GoT 4:104](./references.md/#GoT)]
 
 ## Return to
 
