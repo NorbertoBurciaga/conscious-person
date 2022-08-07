@@ -6,7 +6,7 @@
 - [GoT] Meier, 'Billy' Eduard Albert. (2008/2015) [Kelch der Wahrheit - Goblet of the Truth](https://www.figu.org/ch/files/downloads/buecher/figu-kelch_der_wahrheit_goblet-of-the-truth_v_20150307.pdf). [FIGU](https://www.figu.org)
 
 <a name="DD"></a>
-- [DD] Meier, 'Billy' Eduard Albert. (1975/1993) [Dekalog - Dodekalog](https://shop.figu.org/b%C3%BCcher/dekalog-dodekalog?language=en). Wassermannzeit.
+- [DD] Meier, 'Billy' Eduard Albert. (1975/1993) [Dekalog - Dodekalog] The 12 recommendations from Petale(https://shop.figu.org/b%C3%BCcher/dekalog-dodekalog?language=en). Wassermannzeit.
   CH-8495 Hinterschmidrüti ZH
   (https://nebula.wsimg.com/cac33b106920d52886151223a420b67d?AccessKeyId=C0F879B9BB56750BC6EE&disposition=0&alloworigin=1)
 
