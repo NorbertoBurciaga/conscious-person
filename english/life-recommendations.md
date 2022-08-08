@@ -13,7 +13,8 @@
 - Fight for the cause of [Creation](./definitions.md/#creation) with truth, love, harmony and in peace and freedom. [[GoT 4:101](./references.md/#GoT)]
 - Avoid fighting against the truth out of fear, because the fear will increase even more and your advantage will only be slight and of short duration.[[GoT 4:102](./references.md/#GoT)] [[GoT 4:103](./references.md/#GoT)]
 - Be aware that you cannot avoid death as it is inevitable for every living being so that it will meet you in good and not frighten you when you face it. [[GoT 4:104](./references.md/#GoT)]
-- Good or bad if it doesn't come from outside, it's due to your conduct, you will always get what's coming to you for what you deserve.[[GoT 4:105](./references.md/#GoT)]
+- Good or bad if it does not come from outside, it is due to your conduct, you will always get what is due to you for what you deserve. By deciding your actions, you make known what will be for your good or for your evil.[[GoT 4:105](./references.md/#GoT)] [[GoT 4:106](./references.md/#GoT)]
+- The guiding principle of the teaching of truth, life and spirit is freedom of the will.[[GoT 4:108](./references.md/#GoT)]
 
 
 ## Return to
