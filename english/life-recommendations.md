@@ -15,7 +15,8 @@
 - Be aware that you cannot avoid death as it is inevitable for every living being so that it will meet you in good and not frighten you when you face it. [[GoT 4:104](./references.md/#GoT)]
 - Good or bad if it does not come from outside, it is due to your conduct, you will always get what is due to you for what you deserve. By deciding your actions, you make known what will be for your good or for your evil.[[GoT 4:105](./references.md/#GoT)] [[GoT 4:106](./references.md/#GoT)]
 - The guiding principle of the teaching of truth, life and spirit is freedom of the will.[[GoT 4:108](./references.md/#GoT)]
-- Contradictions in the untruth harm you.[[GoT 4:110](./references.md/#GoT)]
+- Contradictions coming from the untruth harm you.[[GoT 4:110](./references.md/#GoT)]
+- Do not spread rumors because they create enmity and hatred, and cause distress to those who are the subject of the rumor.[[GoT 4:111](./references.md/#GoT)]
 
 
 ## Return to

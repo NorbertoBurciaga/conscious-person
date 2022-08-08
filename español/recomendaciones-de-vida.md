@@ -15,7 +15,8 @@
 - Se conciente de que no puedes evitar la muerte ya que es inevitable para todo ser viviente para que te encuentre en el bien y no te asustes cuando te enfrentes a ella.[[GoT 4:104](./referencias.md/#GoT)]
 - Lo bueno o lo malo si no viene de afuera, se debe a tu conducta, siempre obtendrás lo que te corresponde por lo que te mereces. Al decidir tus acciones, das a conocer lo que será para tu bien o para tu mal.[[GoT 4:105](./referencias.md/#GoT)] [[GoT 4:106](./referencias.md/#GoT)]
 - El principio rector de la enseñanza de la verdad, vida y espíritu es la libertad de la voluntad.[[GoT 4:108](./referencias.md/#GoT)]
-- Las contradicciones en la falsedad te perjudican.[[GoT 4:110](./referencias.md/#GoT)]
+- Las contradicciones provenientes de la falsedad te perjudican.[[GoT 4:110](./referencias.md/#GoT)]
+- No difundan rumores porque crean enemistad y odio, y causan angustia a los que son objeto del rumor.[[GoT 4:111](./referencias.md/#GoT)] 
 
 
 ## Regresar a
