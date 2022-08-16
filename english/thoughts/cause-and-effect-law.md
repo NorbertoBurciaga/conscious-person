@@ -1,0 +1,2 @@
+#  Cause and Effect law
+

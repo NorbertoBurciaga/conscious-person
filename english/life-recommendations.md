@@ -4,8 +4,8 @@
 
 - You shall have no other mights and no gods, tin gods and holy ones next to the [Creation](./definitions.md/#creation).[[Dekalog/Dodekalog 1](./references.md#DD)]
 - Learn the truth-teaching from the laws and recommendations of [Creation](./definitions.md/#creation).[[Got 4:86](./references.md/#GoT)]
-- Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)]
-- Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)]
+- Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
+- Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
 - Find the truth in order to turn to it. [[GoT 4:90](./references.md/#GoT)]
 - Place as a judge over your own self and above everything that is contentious in you, to become one who has knowledge of the truth. [[GoT 4:92](./references.md/#GoT)]
 - Shall not kill in degeneration, only when the necessity to protect one's own life or the lives of your next ones requires it. [[Got 4:93](./references.md/#GoT)] [[Dekalog/Dodekalog 6](./references.md#DD)]
@@ -17,6 +17,9 @@
 - The guiding principle of the teaching of truth, life and spirit is freedom of the will.[[GoT 4:108](./references.md/#GoT)]
 - Contradictions coming from the untruth harm you.[[GoT 4:110](./references.md/#GoT)]
 - Do not spread rumors because they create enmity and hatred, and cause distress to those who are the subject of the rumor.[[GoT 4:111](./references.md/#GoT)]
+- To fight peacefully for the cause of the truth.[[GoT 4:112](./references.md/#GoT)]
+- The truth will always reveal itself sooner or later.[[GoT 4:112](./references.md/#GoT)]
+- The original impulse and the realization of causes and effects are powerful over all things.[[GoT 4:113](./references.md/#GoT)]
 
 
 ## Return to

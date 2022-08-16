@@ -4,8 +4,8 @@
 
 - No tendrás otros poderes, ni dioses, ídolos ni santos junto a la [Creación](./definiciones.md/#creacion).[[Dekalog/Dodekalog 1](./referencias.md/#DD)]
 - Conocer la doctrina de la verdad a partir de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion).[[GoT 4:86](./referencias.md/#GoT)]
-- Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)]
-- Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)]
+- Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)]
+- Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)]
 - Encontrar la verdad para volverse a ella. [[GoT 4:90](./referencias.md/#GoT)]
 - Ser juez de uno mismo y de lo que se discute dentro de uno mismo, para ser conocedor de la verdad. [[GoT 4:92](./referencias.md/#GoT)]
 - No matar en degeneración, solo cuando la necesidad de proteger la vida de uno mismo o la del prójimo lo requiera. [[Got 4:93](./referencias.md/#GoT)] [[Dekalog/Dodekalog 6](./referencias.md/#DD)]
@@ -17,8 +17,11 @@
 - El principio rector de la enseñanza de la verdad, vida y espíritu es la libertad de la voluntad.[[GoT 4:108](./referencias.md/#GoT)]
 - Las contradicciones provenientes de la falsedad te perjudican.[[GoT 4:110](./referencias.md/#GoT)]
 - No difundan rumores porque crean enemistad y odio, y causan angustia a los que son objeto del rumor.[[GoT 4:111](./referencias.md/#GoT)] 
+- Luchar de forma pacífica por la causa de la verdad.[[GoT 4:112](./referencias.md/#GoT)]
+- La verdad siempre se revelará tarde o temprano.[[GoT 4:112](./referencias.md/#GoT)]
+- El impulso original y la consecución de causas y efectos son poderosas sobre todas las cosas.[[GoT 4:113](./referencias.md/#GoT)]
 
-
+ 
 ## Regresar a
 
 [Contenido](./contenido.md)
