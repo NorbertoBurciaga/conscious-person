@@ -10,6 +10,7 @@
 - Enseñar la doctrina de verdad, vida y espíritu solo donde se solicite y se desee para no ser acosados y no hacer proselitismo. [[GoT 4:96](./referencias.md/#GoT)]
 - Reconocer como amigos a aquellos con los que hacen tratos para obtener grandes éxitos. [[GoT 4:98](./referencias.md/#GoT)]
 - Si te saludan, devolver un saludo mejor o al menos igual. [[GoT 4:114](./referencias.md/#GoT)]
+- Tomar como amigos a aquellos que quieran descubrir la verdad y las recomendaciones y leyes de la [Creación](./definiciones.md/#creacion) para que ellos se conviertan en amigos y ayudantes de la verdad. [[GoT 4:117](./referencias.md/#GoT)]
 
 
 ## Regresar a

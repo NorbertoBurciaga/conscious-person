@@ -10,6 +10,7 @@
 - To teach the doctrine of truth, life and spirit only where requested and desired so as not to be harassed and do not proselytize. [[GoT 4:96](./references.md/#GoT)]
 - Recognize as friends those with whom you make deals for great success. [[GoT 4:98](./references.md/#GoT)]
 - If you are greeted, return a better or at least equal greeting. [[GoT 4:114](./references.md/#GoT)]
+- Take as friends those who want to discover the truth and the recommendations and laws of [Creation](./definitions.md/#creation) so that they become friends and helpers of the truth. [[GoT 4:117](./references.md/#GoT)]
 
 
 ## Return to
