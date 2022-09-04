@@ -17,7 +17,7 @@
 - El principio rector de la enseñanza de la verdad, vida y espíritu es la libertad de la voluntad.[[GoT 4:108](./referencias.md/#GoT)]
 - Las contradicciones provenientes de la falsedad te perjudican.[[GoT 4:110](./referencias.md/#GoT)]
 - No difundan rumores porque crean enemistad y odio, y causan angustia a los que son objeto del rumor.[[GoT 4:111](./referencias.md/#GoT)] 
-- Luchar de forma pacífica por la causa de la verdad.[[GoT 4:112](./referencias.md/#GoT)]
+- Luchar de forma pacífica por la causa de la verdad.[[GoT 4:112](./referencias.md/#GoT)] [[GoT 4:125](./referencias.md/#GoT)]
 - La verdad siempre se revelará tarde o temprano.[[GoT 4:112](./referencias.md/#GoT)]
 - El impulso original y la consecución de causas y efectos son poderosas sobre todas las cosas.[[GoT 4:113](./referencias.md/#GoT)]
 
