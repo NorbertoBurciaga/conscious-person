@@ -1,6 +1,6 @@
 # conscious-person
 
-Everything pertaining to a conscious person, not necessarily human.
+Everything related to a conscious person, not necessarily human.
 
 _Todo lo relacionado a una persona conciente, no necesariamente humana._
 
