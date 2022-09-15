@@ -21,7 +21,8 @@
 - La verdad siempre se revelará tarde o temprano. [[GoT 4:112](./referencias.md/#GoT)]
 - El impulso original y la consecución de causas y efectos son poderosas sobre todas las cosas. [[GoT 4:113](./referencias.md/#GoT)]
 - Erradicar tus deudas y errores. [[GoT 4:129](./referencias.md/#GoT)]
-
+- Recordar a tu interior(conciencia) con una invocación en meditación para alinearte con el verdadero amor, la armonía, paz y libertad y para tu desarrollo(evolución). [[GoT 4:136](./referencias.md/#GoT)]
+ 
  
 ## Regresar a
 

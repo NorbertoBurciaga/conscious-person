@@ -21,7 +21,7 @@
 - The truth will always reveal itself sooner or later. [[GoT 4:112](./references.md/#GoT)]
 - The original impulse and the realization of causes and effects are powerful over all things. [[GoT 4:113](./references.md/#GoT)]
 - Eradicate your debts and mistakes. [[GoT 4:129](./references.md/#GoT)]
-
+- Remember your inner self(consciousness) with an invocation in meditation to align yourself with true love, harmony, peace and freedom and for your development(evolution). [GoT 4:136](./references.md/#GoT)]
 
 ## Return to
 
