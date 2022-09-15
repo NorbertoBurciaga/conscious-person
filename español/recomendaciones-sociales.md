@@ -11,7 +11,7 @@
 - Reconocer como amigos a aquellos con los que hacen tratos para obtener grandes éxitos. [[GoT 4:98](./referencias.md/#GoT)]
 - Si te saludan, devolver un saludo mejor o al menos igual. [[GoT 4:114](./referencias.md/#GoT)]
 - Tomar como amigos a aquellos que quieran descubrir la verdad y las recomendaciones y leyes de la [Creación](./definiciones.md/#creacion) para que ellos se conviertan en amigos y ayudantes de la verdad. [[GoT 4:117](./referencias.md/#GoT)]
-- No luchar con armas contra el propio pueblo o contra otro, luchar con no-violencia pacífica, que sea con palabras usadas con prudencia y sabiduría para que haya paz y libertad. [[GoT 4:119](./referencias.md/#GoT)][[GoT 4:120](./referencias.md/#GoT)]
+- No luchar con armas contra el propio pueblo o contra otro, luchar con no-violencia pacífica, que sea con palabras usadas con prudencia y sabiduría para que haya paz y libertad. [[GoT 4:119](./referencias.md/#GoT)] [[GoT 4:120](./referencias.md/#GoT)] [[GoT 4:133](./referencias.md/#GoT)]
 - Primero investiga detalladamente a la persona a la que te vas a dirigir y selecciona que palabras usar cuando te encuentres con él. [[GoT 4:123](./referencias.md/#GoT)]
 
 
