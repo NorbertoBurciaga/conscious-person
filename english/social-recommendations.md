@@ -13,6 +13,7 @@
 - Take as friends those who want to discover the truth and the recommendations and laws of [Creation](./definitions.md/#creation) so that they become friends and helpers of the truth. [[GoT 4:117](./references.md/#GoT)]
 - Do not fight with weapons against one's own people or against another, fight with non-violence, let it be with words used with prudence and wisely so that there may be peace and freedom. [[GoT 4:119](./references.md/#GoT)] [[GoT 4:120](./references.md/#GoT)] [[GoT 4:133](./references.md/#GoT)]
 - First investigate in detail the person you are going to address and select which words to use when you meet him/her. [[GoT 4:123](./references.md/#GoT)]
+- Let ignorants of the truth cooperate with you but be careful that they do not force you into their belief and be alert that they may strike again and again. [[GoT 4:134](./references.md/#GoT)]
 
 
 ## Return to
