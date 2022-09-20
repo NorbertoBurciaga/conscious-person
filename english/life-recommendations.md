@@ -7,6 +7,8 @@
 - Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
 - Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
 - Find the real truth from [Creation](./definitions.md/#creation) in order to turn to it. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:115](./references.md/#GoT)] [[GoT 4:127](./references.md/#GoT)]
+- Find the complexity of truth and the laws and recommendations of [Creation](./definitions.md/#creation) so that your conscience may not suffer or remain unfruitful, nor your fellow human beings suffer. [GoT 4:137](./references.md/#GoT)]
+- Do not aspire to knowledge beyond your understanding because instead of being knowledgeable and wise you would fall into confusion. [[GoT 4:137](./references.md/#GoT)]
 - Place as a judge over your own self and above everything that is contentious in you, to become one who has knowledge of the truth. [[GoT 4:92](./references.md/#GoT)]
 - Shall not kill in degeneration, only in extreme auto-defense, when the necessity to protect one's own life or the lives of your next ones requires it. [[Got 4:93](./references.md/#GoT)] [[Dekalog/Dodekalog 6](./references.md#DD)] [[Got 4:122](./references.md/#GoT)]
 - Let the righteous strive with honesty, fairness, integrity, esteem and deference for not to throw away your life for the sake of the truth, but to be quiet and silent with the truth within you so that your adversaries will not make you suffer. [[GoT 4:99](./references.md/#GoT)]
