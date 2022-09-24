@@ -6,7 +6,7 @@
 - Conocer la doctrina de la verdad a partir de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion).[[GoT 4:86](./referencias.md/#GoT)]
 - Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)]
 - Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)]
-- Encontrar la verdad real proveniente de la [Creación](./definiciones.md/#creacion) para volverse a ella. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:115](./referencias.md/#GoT)] [[GoT 4:127](./referencias.md/#GoT)]
+- Encontrar la verdad real proveniente de la [Creación](./definiciones.md/#creacion) para volverse a ella. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:115](./referencias.md/#GoT)] [[GoT 4:127](./referencias.md/#GoT)] [[GoT 4:138](./referencias.md/#GoT)]
 - Buscar la complejidad de la verdad y las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para que tu conciencia no sufra ni quede estéril, ni sufran tus iguales. [[GoT 4:137](./referencias.md/#GoT)]
 - No aspirar a conocimiento mas allá de tu entendimiento porque en lugar de ser conocedor y sabio caerás en confusión. [[GoT 4:137](./referencias.md/#GoT)]
 - Ser juez de uno mismo y de lo que se discute dentro de uno mismo, para ser conocedor de la verdad. [[GoT 4:92](./referencias.md/#GoT)]
@@ -24,6 +24,7 @@
 - El impulso original y la consecución de causas y efectos son poderosas sobre todas las cosas. [[GoT 4:113](./referencias.md/#GoT)]
 - Erradicar tus deudas y errores. [[GoT 4:129](./referencias.md/#GoT)]
 - Recordar a tu interior(conciencia) con una invocación en meditación para alinearte con el verdadero amor, la armonía, paz y libertad y para tu desarrollo(evolución). [[GoT 4:136](./referencias.md/#GoT)]
+- Al cometer una injusticia es en contra de tí mismo aunque perjudiques a otros. [[GoT 4:144](./referencias.md/#GoT)]
  
  
 ## Regresar a

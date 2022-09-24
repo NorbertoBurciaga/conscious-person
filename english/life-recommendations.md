@@ -6,7 +6,7 @@
 - Learn the truth-teaching from the laws and recommendations of [Creation](./definitions.md/#creation). [[Got 4:86](./references.md/#GoT)]
 - Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
 - Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
-- Find the real truth from [Creation](./definitions.md/#creation) in order to turn to it. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:115](./references.md/#GoT)] [[GoT 4:127](./references.md/#GoT)]
+- Find the real truth from [Creation](./definitions.md/#creation) in order to turn to it. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:115](./references.md/#GoT)] [[GoT 4:127](./references.md/#GoT)] [[GoT 4:138](./references.md/#GoT)]
 - Find the complexity of truth and the laws and recommendations of [Creation](./definitions.md/#creation) so that your conscience may not suffer or remain unfruitful, nor your fellow human beings suffer. [GoT 4:137](./references.md/#GoT)]
 - Do not aspire to knowledge beyond your understanding because instead of being knowledgeable and wise you would fall into confusion. [[GoT 4:137](./references.md/#GoT)]
 - Place as a judge over your own self and above everything that is contentious in you, to become one who has knowledge of the truth. [[GoT 4:92](./references.md/#GoT)]
@@ -24,6 +24,8 @@
 - The original impulse and the realization of causes and effects are powerful over all things. [[GoT 4:113](./references.md/#GoT)]
 - Eradicate your debts and mistakes. [[GoT 4:129](./references.md/#GoT)]
 - Remember your inner self(consciousness) with an invocation in meditation to align yourself with true love, harmony, peace and freedom and for your development(evolution). [GoT 4:136](./references.md/#GoT)]
+- Committing an injustice, it is against yourself even if you harm others. [[GoT 4:144](./references.md/#GoT)]
+
 
 ## Return to
 
