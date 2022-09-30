@@ -4,7 +4,7 @@
 
 - You shall have no other mights and no gods, tin gods and holy ones next to the [Creation](./definitions.md/#creation). [[Dekalog/Dodekalog 1](./references.md#DD)]
 - Learn the truth-teaching from the laws and recommendations of [Creation](./definitions.md/#creation). [[Got 4:86](./references.md/#GoT)]
-- Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)] [[GoT 4:156](./references.md/#GoT)]
+- Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)] [[GoT 4:156](./references.md/#GoT)] [[GoT 4:158](./references.md/#GoT)]
 - Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)]
 - Find the real truth from [Creation](./definitions.md/#creation) in order to turn to it. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:115](./references.md/#GoT)] [[GoT 4:127](./references.md/#GoT)] [[GoT 4:138](./references.md/#GoT)]
 - Find the complexity of truth and the laws and recommendations of [Creation](./definitions.md/#creation) so that your conscience may not suffer or remain unfruitful, nor your fellow human beings suffer. [GoT 4:137](./references.md/#GoT)]
