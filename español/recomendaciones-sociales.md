@@ -14,7 +14,7 @@
 - No luchar con armas contra el propio pueblo o contra otro, luchar con no-violencia pacífica, que sea con palabras usadas con prudencia y sabiduría para que haya paz y libertad. [[GoT 4:119](./referencias.md/#GoT)] [[GoT 4:120](./referencias.md/#GoT)] [[GoT 4:133](./referencias.md/#GoT)]
 - Primero investiga detalladamente a la persona a la que te vas a dirigir y selecciona que palabras usar cuando te encuentres con él. [[GoT 4:123](./referencias.md/#GoT)]
 - Dejar que ignorantes de la verdad cooperen contigo pero ten cuidado de que no te obliguen a creer en su creencia y estar alerta que pueden intentarlo una y otra vez. Enfrentarlos con la prudencia y la razón. [[GoT 4:134](./referencias.md/#GoT)] [[GoT 4:135](./referencias.md/#GoT)]
-
+- Hacer buenas obras para encontrar verdaderos amigos porque valoran y muestran reciprocidad. [[GoT 4:159](./referencias.md/#GoT)]
 
 ## Regresar a
 
