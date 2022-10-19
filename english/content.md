@@ -7,8 +7,8 @@
  3. Places
  4. History
  5. Laws
-    1. Creational
-    2. Natural
+    1. [Creational](./creational-laws.md)
+    2. [Natural](./natural-laws.md)
  6. Recommendations
     1. [Life](./life-recommendations.md)
     2. [Social](./social-recommendations.md)

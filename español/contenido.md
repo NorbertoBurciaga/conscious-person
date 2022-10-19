@@ -7,8 +7,8 @@
  3. Lugares
  4. Historia
  5. Leyes
-    1. Creacionales
-    2. Naturales
+    1. [Creacionales](./leyes-creacionales.md)
+    2. [Naturales](./leyes-naturales.md)
  6. Recomendaciones
     1. [De vida](./recomendaciones-de-vida.md)
     2. [Sociales](./recomendaciones-sociales.md)
