@@ -21,7 +21,6 @@
 - No difundan rumores porque crean enemistad y odio, y causan angustia a los que son objeto del rumor. [[GoT 4:111](./referencias.md/#GoT)] 
 - Luchar de forma pacífica por la causa de la verdad. [[GoT 4:112](./referencias.md/#GoT)] [[GoT 4:125](./referencias.md/#GoT)]
 - La verdad siempre se revelará tarde o temprano. [[GoT 4:112](./referencias.md/#GoT)]
-- El impulso original y la consecución de causas y efectos son poderosas sobre todas las cosas. [[GoT 4:113](./referencias.md/#GoT)]
 - Erradicar tus deudas y errores. [[GoT 4:129](./referencias.md/#GoT)]
 - Recordar a tu interior(conciencia) con una invocación en meditación para alinearte con el verdadero amor, la armonía, paz y libertad y para tu desarrollo(evolución). [[GoT 4:136](./referencias.md/#GoT)]
 - Al cometer una injusticia es en contra de tí mismo aunque perjudiques a otros. [[GoT 4:144](./referencias.md/#GoT)]

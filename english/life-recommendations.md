@@ -21,7 +21,6 @@
 - Do not spread rumors because they create enmity and hatred, and cause distress to those who are the subject of the rumor. [[GoT 4:111](./references.md/#GoT)]
 - To fight peacefully for the cause of the truth. [[GoT 4:112](./references.md/#GoT)] [[GoT 4:125](./references.md/#GoT)]
 - The truth will always reveal itself sooner or later. [[GoT 4:112](./references.md/#GoT)]
-- The original impulse and the realization of causes and effects are powerful over all things. [[GoT 4:113](./references.md/#GoT)]
 - Eradicate your debts and mistakes. [[GoT 4:129](./references.md/#GoT)]
 - Remember your inner self(consciousness) with an invocation in meditation to align yourself with true love, harmony, peace and freedom and for your development(evolution). [GoT 4:136](./references.md/#GoT)]
 - Committing an injustice, it is against yourself even if you harm others. [[GoT 4:144](./references.md/#GoT)]
