@@ -1,3 +1,5 @@
+| [es](../español/leyes-naturales.md) | **en** |
+
 #  Natural Laws
 
 
