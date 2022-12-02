@@ -4,7 +4,7 @@
 
 - No tendrás otros poderes, ni dioses, ídolos ni santos junto a la [Creación](./definiciones.md/#creacion). [[Dekalog/Dodekalog 1](./referencias.md/#DD)]
 - Conocer la doctrina de la verdad a partir de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion).[[GoT 4:86](./referencias.md/#GoT)]
-- Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)] [[GoT 4:156](./referencias.md/#GoT)] [[GoT 4:158](./referencias.md/#GoT)]
+- Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)] [[GoT 4:156](./referencias.md/#GoT)] [[GoT 4:158](./referencias.md/#GoT)] [[GoT 4:163](./referencias.md/#GoT)]
 - Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)]
 - Encontrar la verdad real proveniente de la [Creación](./definiciones.md/#creacion) para volverse a ella. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:115](./referencias.md/#GoT)] [[GoT 4:127](./referencias.md/#GoT)] [[GoT 4:138](./referencias.md/#GoT)]
 - Buscar la complejidad de la verdad y las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para que tu conciencia no sufra ni quede estéril, ni sufran tus iguales. [[GoT 4:137](./referencias.md/#GoT)]

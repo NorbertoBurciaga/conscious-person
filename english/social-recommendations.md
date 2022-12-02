@@ -15,6 +15,7 @@
 - First investigate in detail the person you are going to address and select which words to use when you meet him/her. [[GoT 4:123](./references.md/#GoT)]
 - Let ignorants of the truth cooperate with you but be careful that they do not force you into their belief and be alert that they may strike again and again. Face them with prudence and reason. [[GoT 4:134](./references.md/#GoT)] [[GoT 4:135](./references.md/#GoT)]
 - Do good deeds to find true friends because they value them and show reciprocity. [[GoT 4:159](./references.md/#GoT)]
+- Heed the rights of men, women and children so that no unright is done to them. [[GoT 4:163](./references.md/#GoT)]
 
 ## Return to
 
