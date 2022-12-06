@@ -24,6 +24,7 @@
 - Remember your inner self(consciousness) with an invocation in meditation to align yourself with true love, harmony, peace and freedom and for your development(evolution). [GoT 4:136](./references.md/#GoT)]
 - Committing an injustice, it is against yourself even if you harm others. [[GoT 4:144](./references.md/#GoT)]
 - Do not destroy or disfigure life or anything that was created by Creation. [[GoT 4:153](./references.md/#GoT)]
+- Greed brings unpeace and unfreedom within you and disharmony with others. [[GoT 4:165](./references.md/#GoT)]
 
 
 ## Return to

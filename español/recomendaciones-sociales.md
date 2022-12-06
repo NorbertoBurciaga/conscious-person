@@ -16,6 +16,8 @@
 - Dejar que ignorantes de la verdad cooperen contigo pero ten cuidado de que no te obliguen a creer en su creencia y estar alerta que pueden intentarlo una y otra vez. Enfrentarlos con la prudencia y la razón. [[GoT 4:134](./referencias.md/#GoT)] [[GoT 4:135](./referencias.md/#GoT)]
 - Hacer buenas obras para encontrar verdaderos amigos porque valoran y muestran reciprocidad. [[GoT 4:159](./referencias.md/#GoT)]
 - Respetar los derechos del hombre, la mujer y los hijos para que no sean agraviados. [[GoT 4:163](./referencias.md/#GoT)]
+- En una unión de afecto no encontrarán un equilibrio perfecto, pero si se esfuerzan pueden lograr el mejor equilibrio relativo. [[GoT 4:166](./referencias.md/#GoT)]
+
 
 ## Regresar a
 

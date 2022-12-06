@@ -16,6 +16,7 @@
 - Let ignorants of the truth cooperate with you but be careful that they do not force you into their belief and be alert that they may strike again and again. Face them with prudence and reason. [[GoT 4:134](./references.md/#GoT)] [[GoT 4:135](./references.md/#GoT)]
 - Do good deeds to find true friends because they value them and show reciprocity. [[GoT 4:159](./references.md/#GoT)]
 - Heed the rights of men, women and children so that no unright is done to them. [[GoT 4:163](./references.md/#GoT)]
+- In an affection bond you will not find a perfect balance, but if you make an effort the best relative balance can be achieved. [[GoT 4:166](./references.md/#GoT)]
 
 ## Return to
 
