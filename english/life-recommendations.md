@@ -25,7 +25,7 @@
 - Committing an injustice, it is against yourself even if you harm others. [[GoT 4:144](./references.md/#GoT)]
 - Do not destroy or disfigure life or anything that was created by Creation. [[GoT 4:153](./references.md/#GoT)]
 - Greed brings unpeace and unfreedom within you and disharmony with others. [[GoT 4:165](./references.md/#GoT)]
-
+- Through the truth of the laws and recommendations of Creation the universe was created so that you can exist and evolve your consciousness. [[GoT 4:168](./references.md/#GoT)] 
 
 ## Return to
 

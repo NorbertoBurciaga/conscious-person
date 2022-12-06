@@ -25,7 +25,7 @@
 - Al cometer una injusticia es en contra de tí mismo aunque perjudiques a otros. [[GoT 4:144](./referencias.md/#GoT)]
 - No destruir ni desfigurar la vida ni lo creado por la Creación. [[GoT 4:153](./referencias.md/#GoT)]
 - La avaricia trae discordia y falta de libertad dentro de tí y desarmonía con los demás. [[GoT 4:165](./referencias.md/#GoT)] 
- 
+- A través de la verdad de las leyes y mandamientos de la Creación se creó el universo para que puedas existir y evolucionar tu conciencia. [[GoT 4:168](./referencias.md/#GoT)] 
  
 ## Regresar a
 
