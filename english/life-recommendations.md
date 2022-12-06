@@ -26,6 +26,8 @@
 - Do not destroy or disfigure life or anything that was created by Creation. [[GoT 4:153](./references.md/#GoT)]
 - Greed brings unpeace and unfreedom within you and disharmony with others. [[GoT 4:165](./references.md/#GoT)]
 - Through the truth of the laws and recommendations of Creation the universe was created so that you can exist and evolve your consciousness. [[GoT 4:168](./references.md/#GoT)] 
+- You cannot put another to learn the teaching of truth and evolve his consciousness for you. [[GoT 4:169](./references.md/#GoT)]
+
 
 ## Return to
 
