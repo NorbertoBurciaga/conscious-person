@@ -4,7 +4,7 @@
 
 - No tendrás otros poderes, ni dioses, ídolos ni santos junto a la [Creación](./definiciones.md/#creacion). [[Dekalog/Dodekalog 1](./referencias.md/#DD)]
 - Conocer la doctrina de la verdad a partir de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion).[[GoT 4:86](./referencias.md/#GoT)]
-- Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)] [[GoT 4:156](./referencias.md/#GoT)] [[GoT 4:158](./referencias.md/#GoT)] [[GoT 4:163](./referencias.md/#GoT)]
+- Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable, para que no se extravíen en su existencia y no hagan el mal. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)] [[GoT 4:156](./referencias.md/#GoT)] [[GoT 4:158](./referencias.md/#GoT)] [[GoT 4:163](./referencias.md/#GoT)] [[GoT 4:173](./referencias.md/#GoT)]
 - Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)]
 - Encontrar la verdad real proveniente de la [Creación](./definiciones.md/#creacion) para volverse a ella. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:115](./referencias.md/#GoT)] [[GoT 4:127](./referencias.md/#GoT)] [[GoT 4:138](./referencias.md/#GoT)]
 - Buscar la complejidad de la verdad y las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para que tu conciencia no sufra ni quede estéril, ni sufran tus iguales. [[GoT 4:137](./referencias.md/#GoT)]
@@ -18,7 +18,7 @@
 - Lo bueno o lo malo si no viene de afuera, se debe a tu conducta, siempre obtendrás lo que te corresponde por lo que te mereces. Al decidir tus acciones, das a conocer lo que será para tu bien o para tu mal. [[GoT 4:105](./referencias.md/#GoT)] [[GoT 4:106](./referencias.md/#GoT)]
 - El principio rector de la enseñanza de la verdad, vida y espíritu es la libertad de la voluntad. [[GoT 4:108](./referencias.md/#GoT)]
 - Las contradicciones provenientes de la falsedad te perjudican. [[GoT 4:110](./referencias.md/#GoT)]
-- No difundan rumores porque crean enemistad y odio, y causan angustia a los que son objeto del rumor. [[GoT 4:111](./referencias.md/#GoT)]  
+- No difundas rumores porque crean enemistad y odio, y causan angustia a los que son objeto del rumor. [[GoT 4:111](./referencias.md/#GoT)]  
 - La verdad siempre se revelará tarde o temprano. [[GoT 4:112](./referencias.md/#GoT)]
 - Erradicar tus deudas y errores. [[GoT 4:129](./referencias.md/#GoT)]
 - Recordar a tu interior(conciencia) con una invocación en meditación para alinearte con el verdadero amor, la armonía, paz y libertad y para tu desarrollo(evolución). [[GoT 4:136](./referencias.md/#GoT)]
@@ -27,7 +27,7 @@
 - La avaricia trae discordia y falta de libertad dentro de tí y desarmonía con los demás. [[GoT 4:165](./referencias.md/#GoT)] 
 - A través de la verdad de las leyes y mandamientos de la Creación se creó el universo para que puedas existir y evolucionar tu conciencia. [[GoT 4:168](./referencias.md/#GoT)] 
 - No puedes poner a otro a que aprenda la enseñanza de la verdad y evolucione su conciencia por tí. [[GoT 4:169](./referencias.md/#GoT)]
- 
+- La recompensa sera de acuerdo a como se evalúen tus actos y palabras. [[GoT 4:170](./referencias.md/#GoT)]
  
 ## Regresar a
 
