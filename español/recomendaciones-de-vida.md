@@ -28,6 +28,8 @@
 - A través de la verdad de las leyes y mandamientos de la Creación se creó el universo para que puedas existir y evolucionar tu conciencia. [[GoT 4:168](./referencias.md/#GoT)] 
 - No puedes poner a otro a que aprenda la enseñanza de la verdad y evolucione su conciencia por tí. [[GoT 4:169](./referencias.md/#GoT)]
 - La recompensa sera de acuerdo a como se evalúen tus actos y palabras. [[GoT 4:170](./referencias.md/#GoT)]
+- Si eres conciente de la verdad, luego te alejas, luego la reencuentras y te vuelves a alejar entonces la ignorancia se derramará sobre tí de tal manera que no encontrarás el camino de regreso a la verdad. [[GoT 4:174](./referencias.md/#GoT)]
+ 
  
 ## Regresar a
 

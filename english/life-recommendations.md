@@ -28,6 +28,8 @@
 - Through the truth of the laws and recommendations of Creation the universe was created so that you can exist and evolve your consciousness. [[GoT 4:168](./references.md/#GoT)] 
 - You cannot put another to learn the teaching of truth and evolve his consciousness for you. [[GoT 4:169](./references.md/#GoT)]
 - The reward will be according to how your deeds and words are evaluated. [[GoT 4:170](./references.md/#GoT)]
+- If you become concious of the truth, then fall away from it, then find it again, and fall away from it again, then ignorance will rain down over you in such a way that you will not find your way back to the truth. [[GoT 4:174](./references.md/#GoT)]
+
 
 ## Return to
 
