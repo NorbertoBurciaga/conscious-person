@@ -31,6 +31,10 @@
 - [VAA] Voice of the Aquarian Age newsletter (Stimme der Wassermannzeit) No. 89.  (December 1993).
 (https://ca.figu.org/what-is-the-creation-.html)
 
+<a name="CR829"></a>
+- [CR829] Meier, 'Billy' Eduard Albert. (2022) Contact Report 829. 
+  (https://www.figu.org/ch/files/downloads/kontaktberichte/figu_kontaktbericht_829.pdf). English translation (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_829)
+
 
 ## Return to
 
