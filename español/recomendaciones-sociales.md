@@ -17,7 +17,7 @@
 - Hacer buenas obras para encontrar verdaderos amigos porque valoran y muestran reciprocidad. [[GoT 4:159](./referencias.md/#GoT)]
 - Respetar los derechos del hombre, la mujer y los hijos para que no sean agraviados. [[GoT 4:163](./referencias.md/#GoT)]
 - En una unión de afecto no encontrarán un equilibrio perfecto, pero si se esfuerzan pueden lograr el mejor equilibrio relativo. [[GoT 4:166](./referencias.md/#GoT)]
-
+- Busca como amgigos a los justos, a los rectos y a los incorruptos porque el verdadero honor está con ellos. [[GoT 4:176](./referencias.md/#GoT)]
 
 ## Regresar a
 

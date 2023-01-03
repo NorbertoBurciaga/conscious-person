@@ -29,7 +29,8 @@
 - No puedes poner a otro a que aprenda la enseñanza de la verdad y evolucione su conciencia por tí. [[GoT 4:169](./referencias.md/#GoT)]
 - La recompensa sera de acuerdo a como se evalúen tus actos y palabras. [[GoT 4:170](./referencias.md/#GoT)]
 - Si eres conciente de la verdad, luego te alejas, luego la reencuentras y te vuelves a alejar entonces la ignorancia se derramará sobre tí de tal manera que no encontrarás el camino de regreso a la verdad. [[GoT 4:174](./referencias.md/#GoT)]
-- Si eres hipócrita estás determinando un castigo doloroso para tu ser interior y tu psique, y serás despreciado por tus semejantes. [[GoT 4:175](./referencias.md/#GoT)]
+- Si eres hipócrita estás determinando un castigo doloroso para tu ser interior y tu psique, y serás despreciado por tus semejantes. [[GoT 4:175](./referencias.md/#GoT)] [[GoT 4:182](./referencias.md/#GoT)]
+- Encuentra la verdad dentro de tí mismo a través de tu propia investigación y mantente alejado de la religión. [[GoT 4:181](./referencias.md/#GoT)]
 
  
 ## Regresar a
