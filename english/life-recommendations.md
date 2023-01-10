@@ -30,6 +30,7 @@
 - The reward will be according to how your deeds and words are evaluated. [[GoT 4:170](./references.md/#GoT)]
 - If you become concious of the truth, then fall away from it, then find it again, and fall away from it again, then ignorance will rain down over you in such a way that you will not find your way back to the truth. [[GoT 4:174](./references.md/#GoT)]
 - If you are hypocrite you are imposing a painful punishment for your inner nature and your psyche, and you will be despised by your fellow men. [[GoT 4:175](./references.md/#GoT)] [[GoT 4:182](./references.md/#GoT)]
+- Turn away from hypocrisy and hold on to the truth and its teaching to receive a good reward in yourself because joy, happiness, love and harmony will be present. And if you spread this reward you will be granted a new good reward. [[GoT 4:183](./references.md/#GoT)]
 - Find the truth inside yourself through your own investigation, remain independent and self-aware at all time, and stay away from religion. [[GoT 4:181](./references.md/#GoT)] [[CR 829:64 Billy 1 and 7](./references.md/#CR829)]
 
 
