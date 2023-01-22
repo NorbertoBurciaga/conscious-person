@@ -32,7 +32,8 @@
 - Si eres hipócrita estás determinando un castigo doloroso para tu ser interior y tu psique, y serás despreciado por tus semejantes. [[GoT 4:175](./referencias.md/#GoT)] [[GoT 4:182](./referencias.md/#GoT)]
 - Apártate de la hipocresía y aferrate a la verdad y a su enseñanza para recibir una buena recompensa en tí mismo porque estará presente la alegría, la felicidad, el amor y la armonía. Y si esparces esta recompensa se te concederá una nueva buena recompensa. [[GoT 4:183](./referencias.md/#GoT)]
 - Encuentra la verdad dentro de tí mismo a través de tu propia investigación, permanece indepentiente y autoconciente en todo momento, y mantente alejado de la religión. [[GoT 4:181](./referencias.md/#GoT)] [[CR 829:64 Billy 1 y 7](./referencias.md/#CR829)]
-
+- No hables inapropiadamente en público o en secreto, tengas razón o no, porque el decoro apropiado se debe solo al habla y a la palabra. [[GoT 4:186](./referencias.md/#GoT)]
+ 
  
 ## Regresar a
 
