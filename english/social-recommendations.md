@@ -18,6 +18,9 @@
 - Heed the rights of men, women and children so that no unright is done to them. [[GoT 4:163](./references.md/#GoT)]
 - In an affection bond you will not find a perfect balance, but if you make an effort the best relative balance can be achieved. [[GoT 4:166](./references.md/#GoT)]
 - Take as friends the fair, the righteous and the uncorrupted ones for true honor is with them. [[GoT 4:176](./references.md/#GoT)]
+- Speak with truth and equitableness for someone who had an unright. [[GoT 4:187](./references.md/#GoT)]
+- 
+ 
 
 ## Return to
 
