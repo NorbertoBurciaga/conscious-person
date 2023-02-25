@@ -33,7 +33,6 @@
 - Turn away from hypocrisy and hold on to the truth and its teaching to receive a good reward in yourself because joy, happiness, love and harmony will be present. And if you spread this reward you will be granted a new good reward. [[GoT 4:183](./references.md/#GoT)]
 - Find the truth inside yourself through your own investigation, remain independent and self-aware at all time, and stay away from religion. [[GoT 4:181](./references.md/#GoT)] [[CR 829:64 Billy 1 and 7](./references.md/#CR829)]
 - Do not speak inappropriately in public or in secret, whether you are right or wrong, because proper seemliness is due only to speech and word. [[GoT 4:186](./references.md/#GoT)]
-
 - It is better to do good deeds in secret so as not to elevate oneself before the people, revealing it takes away its value and seriousness. [[GoT 4:188](./references.md/#GoT)]
 
 ## Return to
