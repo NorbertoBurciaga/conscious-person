@@ -33,8 +33,8 @@
 - Apártate de la hipocresía y aferrate a la verdad y a su enseñanza para recibir una buena recompensa en tí mismo porque estará presente la alegría, la felicidad, el amor y la armonía. Y si esparces esta recompensa se te concederá una nueva buena recompensa. [[GoT 4:183](./referencias.md/#GoT)]
 - Encuentra la verdad dentro de tí mismo a través de tu propia investigación, permanece indepentiente y autoconciente en todo momento, y mantente alejado de la religión. [[GoT 4:181](./referencias.md/#GoT)] [[CR 829:64 Billy 1 y 7](./referencias.md/#CR829)]
 - No hables inapropiadamente en público o en secreto, tengas razón o no, porque el decoro apropiado se debe solo al habla y a la palabra. [[GoT 4:186](./referencias.md/#GoT)]
- 
 - Es mejor hacer buenas acciones en secreto para no elevarse ante la gente, darla a conocer le quita valor y seriedad. [[GoT 4:188](./referencias.md/#GoT)]
+- Si te perjudican, perdona para que no nazca en tí odio ni venganza, para que seas erradicador de malas acciones, seas de buena concencia y disfrutes de tu alegría con sinceridad. [[GoT 4:189](./referencias.md/#GoT)] 
  
 ## Regresar a
 
