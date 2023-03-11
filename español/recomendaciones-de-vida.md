@@ -35,6 +35,11 @@
 - No hables inapropiadamente en público o en secreto, tengas razón o no, porque el decoro apropiado se debe solo al habla y a la palabra. [[GoT 4:186](./referencias.md/#GoT)]
  
  
+ ## Continuar con
+ 
+ [Recomendaciones  Sociales](./recomendaciones-sociales.md)
+ 
+ 
 ## Regresar a
 
 [Contenido](./contenido.md)

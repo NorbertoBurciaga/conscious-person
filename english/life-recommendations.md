@@ -37,7 +37,7 @@
 
 ## Continue to
 
-[Social](./social-recommendations.md)
+[Social Recommendations](./social-recommendations.md)
 
 
 ## Return to

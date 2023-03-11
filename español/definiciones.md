@@ -16,6 +16,11 @@
 - **Wesenheit** - (escencialidad, substancialidad, sustancia) "Es una forma de existencia inmaterial o material sin una posibilidad autodeterminante de evolución, donde sin embargo esta posibilidad puede ser dada hasta cierto punto, como con la Conciencia de Creación Universal, ciertas energías, piedras, agua y gases etc." [[FIGU-Bulletin 68](./referencias.md#FB68)]
 
 
+## Continuar con
+
+[Biografías](./biografias.md)
+
+
 ## Regresar a
 
 [Contenido](./contenido.md)

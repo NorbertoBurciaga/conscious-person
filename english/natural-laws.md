@@ -5,7 +5,7 @@
 
 ## Continue to
 
-[Life](./life-recommendations.md)
+[Life Recommendations](./life-recommendations.md)
 
 
 ## Return to

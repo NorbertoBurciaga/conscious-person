@@ -7,7 +7,7 @@
 
 ## Continue to
 
-[Natural](./natural-laws.md)
+[Natural Laws](./natural-laws.md)
 
 
 ## Return to
