@@ -16,6 +16,10 @@
 - **Wesenheit** - (essentiality, substantiality, substance) "It is a form of immaterial or material existence without a self-determining possibility of evolution, where however this possibility can be given to a certain extent, as with the Universal Creation Consciousness, certain energies, stones, water and gases etc." [[FIGU-Bulletin 68](./references.md#FB68)]
 
 
+## Continue to
+
+[Biographies](biographies.md)
+
 ## Return to
 
 [Content](./content.md)

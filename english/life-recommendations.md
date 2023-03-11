@@ -35,6 +35,11 @@
 - Do not speak inappropriately in public or in secret, whether you are right or wrong, because proper seemliness is due only to speech and word. [[GoT 4:186](./references.md/#GoT)]
 
 
+## Continue to
+
+[Social](./social-recommendations.md)
+
+
 ## Return to
 
 [Content](./content.md)
