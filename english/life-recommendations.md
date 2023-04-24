@@ -34,7 +34,9 @@
 - Find the truth inside yourself through your own investigation, remain independent and self-aware at all time, and stay away from religion. [[GoT 4:181](./references.md/#GoT)] [[CR 829:64 Billy 1 and 7](./references.md/#CR829)]
 - Do not speak inappropriately in public or in secret, whether you are right or wrong, because proper seemliness is due only to speech and word. [[GoT 4:186](./references.md/#GoT)]
 - It is better to do good deeds in secret so as not to elevate oneself before the people, revealing it takes away its value and seriousness. [[GoT 4:188](./references.md/#GoT)]
-- If you are harmed, forgive so that hatred and revenge may come alive in you, so that you may be an eradicator of wrongdoing, be of good conscience, and enjoy your gladness in honesty. [[GoT 4:189](./references.md/#GoT)] 
+- If you are harmed, forgive so that hatred and revenge may come alive in you, so that you may be an eradicator of wrongdoing, be of good conscience, and enjoy your gladness in honesty. [[GoT 4:189](./references.md/#GoT)]
+- To differentiate between the true teachings of the laws and recommendations of [Creation](./definitions.md/#creation) and existence(life) is not to understand the truth, nor to find the way to it. [GoT 4:190](./references.md/#GoT)]
+
 
 ## Continue to
 
