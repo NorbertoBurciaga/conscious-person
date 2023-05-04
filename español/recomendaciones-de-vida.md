@@ -36,6 +36,8 @@
 - Es mejor hacer buenas acciones en secreto para no elevarse ante la gente, darla a conocer le quita valor y seriedad. [[GoT 4:188](./referencias.md/#GoT)]
 - Si te perjudican, perdona para que no nazca en tí odio ni venganza, para que seas erradicador de malas acciones, seas de buena concencia y disfrutes de tu alegría con sinceridad. [[GoT 4:189](./referencias.md/#GoT)]
 - Hacer distinción entre las verdaderas enseñanzas de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) y la existencia(vida) es no comprender la verdad, ni encontrar el camino hacia ella. [[GoT 4:190](./referencias.md/#GoT)]
+- No hay un camino intermedio entre la verdad real y la falsedad irreal. [[GoT 4:191](./referencias.md/#GoT)]
+- Entra a la enseñanza de la verdad por la puerta del conocimiento, para que no ignores y transgredas las leyes y mandamientos de la [Creación](./definiciones.md/#creacion), así harás un pacto con la verdad y harás lo correcto. [[GoT 4:198](./referencias.md/#GoT)]
 
 
  ## Continuar con

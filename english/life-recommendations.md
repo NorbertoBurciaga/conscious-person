@@ -36,6 +36,8 @@
 - It is better to do good deeds in secret so as not to elevate oneself before the people, revealing it takes away its value and seriousness. [[GoT 4:188](./references.md/#GoT)]
 - If you are harmed, forgive so that hatred and revenge may come alive in you, so that you may be an eradicator of wrongdoing, be of good conscience, and enjoy your gladness in honesty. [[GoT 4:189](./references.md/#GoT)]
 - To differentiate between the true teachings of the laws and recommendations of [Creation](./definitions.md/#creation) and existence(life) is not to understand the truth, nor to find the way to it. [GoT 4:190](./references.md/#GoT)]
+- There is no middle way between real truth and unreal untruth. [[GoT 4:191](./references.md/#GoT)]
+- Step through the door of the cognition into the truth-teaching, so that you will not neglect and contravene the laws and recommendations of [Creation](./definitions.md/#creation), so that you will make a bond with the truth and do what is right. [[GoT 4:198](./references.md/#GoT)]
 
 
 ## Continue to
