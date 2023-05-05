@@ -37,7 +37,9 @@
 - Si te perjudican, perdona para que no nazca en tí odio ni venganza, para que seas erradicador de malas acciones, seas de buena concencia y disfrutes de tu alegría con sinceridad. [[GoT 4:189](./referencias.md/#GoT)]
 - Hacer distinción entre las verdaderas enseñanzas de las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) y la existencia(vida) es no comprender la verdad, ni encontrar el camino hacia ella. [[GoT 4:190](./referencias.md/#GoT)]
 - No hay un camino intermedio entre la verdad real y la falsedad irreal. [[GoT 4:191](./referencias.md/#GoT)]
-- Entra a la enseñanza de la verdad por la puerta del conocimiento, para que no ignores y transgredas las leyes y mandamientos de la [Creación](./definiciones.md/#creacion), así harás un pacto con la verdad y harás lo correcto. [[GoT 4:198](./referencias.md/#GoT)]
+- Entra a la enseñanza de la verdad por la puerta del conocimiento, para que no ignores ni transgredas las leyes y mandamientos de la [Creación](./definiciones.md/#creacion), así harás un pacto con la verdad y harás lo correcto. [[GoT 4:198](./referencias.md/#GoT)]
+- No cobres por enseñar y hablar de la verdad, solo recibe regalos que se te dan por amor y bondad sin pedirlos, para pagar los costos para difundir la enseñanza de la verdad, vida y espíritu. [[GoT 4:204](./referencias.md/#GoT)]
+- Enseña a tus hijos para que tengan el conocimiento de la vida, la verdad y el espíritu, por lo tanto también en las cosas de la vida, la muerte y el morir, para que no se quiebren en la vida y no tengan el peso de la insertidumbre y se les conceda la mayor recompensa de la vida. [[GoT 4:209](./referencias.md/#GoT)]
 
 
  ## Continuar con
