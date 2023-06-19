@@ -34,7 +34,13 @@
 - Find the truth inside yourself through your own investigation, remain independent and self-aware at all time, and stay away from religion. [[GoT 4:181](./references.md/#GoT)] [[CR 829:64 Billy 1 and 7](./references.md/#CR829)]
 - Do not speak inappropriately in public or in secret, whether you are right or wrong, because proper seemliness is due only to speech and word. [[GoT 4:186](./references.md/#GoT)]
 - It is better to do good deeds in secret so as not to elevate oneself before the people, revealing it takes away its value and seriousness. [[GoT 4:188](./references.md/#GoT)]
-- If you are harmed, forgive so that hatred and revenge may come alive in you, so that you may be an eradicator of wrongdoing, be of good conscience, and enjoy your gladness in honesty. [[GoT 4:189](./references.md/#GoT)] 
+- If you are harmed, forgive so that hatred and revenge may come alive in you, so that you may be an eradicator of wrongdoing, be of good conscience, and enjoy your gladness in honesty. [[GoT 4:189](./references.md/#GoT)]
+- To differentiate between the true teachings of the laws and recommendations of [Creation](./definitions.md/#creation) and existence(life) is not to understand the truth, nor to find the way to it. [GoT 4:190](./references.md/#GoT)]
+- There is no middle way between real truth and unreal untruth. [[GoT 4:191](./references.md/#GoT)]
+- Step through the door of the cognition into the truth-teaching, so that you will not neglect and contravene the laws and recommendations of [Creation](./definitions.md/#creation), so that you will make a bond with the truth and do what is right. [[GoT 4:198](./references.md/#GoT)]
+- Do not charge for teaching and speaking the truth, only receive gifts given to you out of love and kindness without asking for them, to pay the costs to spread the teaching of truth, life and spirit. [[GoT 4:204](./references.md/#GoT)]
+- Teach your children so that they may have the knowledge of life, truth and spirit, therefore also in the things of life, death and dying, so that they may not be broken in life and have the burden of insecurity and be granted the greatest reward of life. [[GoT 4:209](./references.md/#GoT)]
+
 
 ## Continue to
 
