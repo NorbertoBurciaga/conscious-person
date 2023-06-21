@@ -40,6 +40,7 @@
 - Step through the door of the cognition into the truth-teaching, so that you will not neglect and contravene the laws and recommendations of [Creation](./definitions.md/#creation), so that you will make a bond with the truth and do what is right. [[GoT 4:198](./references.md/#GoT)]
 - Do not charge for teaching and speaking the truth, only receive gifts given to you out of love and kindness without asking for them, to pay the costs to spread the teaching of truth, life and spirit. [[GoT 4:204](./references.md/#GoT)]
 - Teach your children so that they may have the knowledge of life, truth and spirit, therefore also in the things of life, death and dying, so that they may not be broken in life and have the burden of insecurity and be granted the greatest reward of life. [[GoT 4:209](./references.md/#GoT)]
+- To persist in ignorance of the truth, to be unfair, unconsious and imprudent, you will not be able to forgive yourself or guide yourself on the right path. [[GoT 4:214-215](./references.md/#GoT)] 
 
 
 ## Continue to
