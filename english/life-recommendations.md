@@ -43,7 +43,7 @@
 - Do not charge for teaching and speaking the truth, only receive gifts given to you out of love and kindness without asking for them, to pay the costs to spread the teaching of truth, life and spirit. [[GoT 4:204](./references.md/#GoT)]
 - Teach your children so that they may have the knowledge of life, truth and spirit, therefore also in the things of life, death and dying, so that they may not be broken in life and have the burden of insecurity and be granted the greatest reward of life. [[GoT 4:209](./references.md/#GoT)]
 - To persist in ignorance of the truth, to be unfair, unconsious and imprudent, you will not be able to forgive yourself or guide yourself on the right path. [[GoT 4:214-215](./references.md/#GoT)] 
-- Respect your world and do not bring affliction on it through development, profit or by a large number of people of your kind. Do not multiply like vermin because if they destroy themselves when they get out of control, you create your own demise. [[GoT 4:224](./references.md/#GoT)]
+- Do not harm your world through development, greed, and/or overpopulation. [[GoT 4:224](./references.md/#GoT)]
 
 
 ## Continue to

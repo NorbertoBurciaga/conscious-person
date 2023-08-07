@@ -43,7 +43,7 @@
 - No cobres por enseñar y hablar de la verdad, solo recibe regalos que se te dan por amor y bondad sin pedirlos, para pagar los costos para difundir la enseñanza de la verdad, vida y espíritu. [[GoT 4:204](./referencias.md/#GoT)]
 - Enseña a tus hijos para que tengan el conocimiento de la vida, la verdad y el espíritu, por lo tanto también en las cosas de la vida, la muerte y el morir, para que no se quiebren en la vida y no tengan el peso de la insertidumbre y se les conceda la mayor recompensa de la vida. [[GoT 4:209](./referencias.md/#GoT)]
 - Persistir en la ignorancia de la verdad, ser injusto, inconsciente e imprudente, no podrás perdonarte a tí mismo ni guiarte por el camino correcto. [[GoT 4:214-215](./referencias.md/#GoT)]
-- Respetar tu mundo y no causarle sufrimiento a través del desarrollo, ganancias, ni por un gran número de personas de su especie. No multiplicarse como alimañas porque si se destruyen así mismas cuando se salen de control, así se crea la propia desaparición. [[GoT 4:224](./referencias.md/#GoT)]
+- No dañar tu mundo a través del desarrollo, avaricia, y/o sobrepoblación. [[GoT 4:224](./referencias.md/#GoT)]
 
 
 ## Continuar con
