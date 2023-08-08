@@ -44,7 +44,7 @@
 - Enseña a tus hijos para que tengan el conocimiento de la vida, la verdad y el espíritu, por lo tanto también en las cosas de la vida, la muerte y el morir, para que no se quiebren en la vida y no tengan el peso de la insertidumbre y se les conceda la mayor recompensa de la vida. [[GoT 4:209](./referencias.md/#GoT)]
 - Persistir en la ignorancia de la verdad, ser injusto, inconsciente e imprudente, no podrás perdonarte a tí mismo ni guiarte por el camino correcto. [[GoT 4:214-215](./referencias.md/#GoT)]
 - No dañar tu mundo a través del desarrollo, avaricia, y/o sobrepoblación. [[GoT 4:224](./referencias.md/#GoT)]
-
+- No excedas los límites de tu conocimiento y permanece en la verdad para no confundir a la conciencia y al intelecto y caer en la megalomanía que puede llevar a la humanidad a la ruina. [[GoT 4:225](./referencias.md/#GoT)]
 
 ## Continuar con
  

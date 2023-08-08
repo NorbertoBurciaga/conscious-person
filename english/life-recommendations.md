@@ -44,6 +44,7 @@
 - Teach your children so that they may have the knowledge of life, truth and spirit, therefore also in the things of life, death and dying, so that they may not be broken in life and have the burden of insecurity and be granted the greatest reward of life. [[GoT 4:209](./references.md/#GoT)]
 - To persist in ignorance of the truth, to be unfair, unconsious and imprudent, you will not be able to forgive yourself or guide yourself on the right path. [[GoT 4:214-215](./references.md/#GoT)] 
 - Do not harm your world through development, greed, and/or overpopulation. [[GoT 4:224](./references.md/#GoT)]
+- Do not exceed the limits in your knowledge and remain with the truth so you don't confuse the conscience and the intellect and fall prey to megalomania that can drive humanity to ruin. [[GoT 4:225](./references.md/#GoT)]
 
 
 ## Continue to
