@@ -45,6 +45,7 @@
 - Persistir en la ignorancia de la verdad, ser injusto, inconsciente e imprudente, no podrás perdonarte a tí mismo ni guiarte por el camino correcto. [[GoT 4:214-215](./referencias.md/#GoT)]
 - No dañar tu mundo a través del desarrollo, avaricia, y/o sobrepoblación. [[GoT 4:224](./referencias.md/#GoT)]
 - No excedas los límites de tu conocimiento y permanece en la verdad para no confundir a la conciencia y al intelecto y caer en la megalomanía que puede llevar a la humanidad a la ruina. [[GoT 4:225](./referencias.md/#GoT)]
+- Cumplir los contratos que hacen entre ustedes, así como los contratos no escritos que existen entre tu y la [Creación](./definiciones.md/#creacion) para que te vaya bien. [[GoT 5:1](./referencias.md/#GoT)]
 
 ## Continuar con
  

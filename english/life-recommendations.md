@@ -45,6 +45,7 @@
 - To persist in ignorance of the truth, to be unfair, unconsious and imprudent, you will not be able to forgive yourself or guide yourself on the right path. [[GoT 4:214-215](./references.md/#GoT)] 
 - Do not harm your world through development, greed, and/or overpopulation. [[GoT 4:224](./references.md/#GoT)]
 - Do not exceed the limits in your knowledge and remain with the truth so you don't confuse the conscience and the intellect and fall prey to megalomania that can drive humanity to ruin. [[GoT 4:225](./references.md/#GoT)]
+- Fulfill the contracts you make with each other, as well as the unwritten contracts that exist between you and [Creation](./definitions.md/#creation) so that it shall be well with you. [GoT 5:1](./references.md/#GoT)]
 
 
 ## Continue to
