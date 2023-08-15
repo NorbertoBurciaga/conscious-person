@@ -2,6 +2,9 @@
 
 # Definiciones
 
+<a name="amor-verdadero"></a>
+- **Amor verdadero** - Es un estado eterno y una actitud de inmutabilidad en todas las esferas y situaciones de la vida, y hace que el hombre se convierta en el amor mismo. [[CR 857](./referencias.md/#CR857)] Es la sabiduría en su mejor forma [[CR 10:60](./referencias.md/#CR10)], es un estado [[CR 10:71](./referencias.md/#CR10)] constante, persistente, inquebrantable que tiende a la bondad y a la paciencia, encarna todo lo que es esperanzador y sobrecogedor, lo que es bueno y verdaderamente humano. [[CR 857](./referencias.md/#CR857)]
+
 <a name="creacion"></a>
 - **Creación** - Es una forma de existencia ([Wesenheit](#wesenheit)) de inmensa masa de energía neutral espiritual. [[OM 1:1](./referencias.md#om)] [[FIGU-Bulletin 68](./referencias.md#FB68)] "Es espíritu en estado puro e inconmensurable en su sabiduría, conocimiento, amor y en su armonía y verdad." [[Dekalog/Dodekalog](./referencias.md#DD)] Como forma de energía espiritual natural, la Conciencia Universal de la Creación es una forma evolutiva puramente causal de energía espiritual de la cual se dan las leyes y mandamientos naturales. Todo en la Conciencia Universal de la Creación está absolutamente equilibrado, por lo tanto es positivo-neutral en toda forma ya que contiene el 100% de positivo y 100% de negativo resultando en un equilibrio absoluto de las dos energías. [[OM 1:1](./referencias.md#om)] [[FIGU-Bulletin 68](./referencias.md#FB68)] [[GoT 2:362](./referencias.md/#GoT)] [[GoT 4:149](./referencias.md/#GoT)]  
     Es la verdad de toda realidad(SER) y de todo efecto(existencia) en el universo y abarca también la vida.[[GoT 4:162](./referencias.md/#GoT)]

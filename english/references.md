@@ -31,9 +31,17 @@
 - [VAA] Voice of the Aquarian Age newsletter (Stimme der Wassermannzeit) No. 89.  (December 1993).
 (https://ca.figu.org/what-is-the-creation-.html)
 
+<a name="CR10"></a>
+- [CR10] Meier, 'Billy' Eduard Albert. (1975) Contact Report 10. 
+  (https://shop.figu.org/b%C3%BCcher/plejadisch-plejarische-kontaktberichte-block-1). Plejadisch-plejarische Kontaktberichte Block 1. Wassermannzeit. ISBN-13: 9783909154210. English translation (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_010)
+
 <a name="CR829"></a>
 - [CR829] Meier, 'Billy' Eduard Albert. (2022) Contact Report 829. 
   (https://www.figu.org/ch/files/downloads/kontaktberichte/figu_kontaktbericht_829.pdf). English translation (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_829)
+
+<a name="CR857"></a>
+- [CR857] Meier, 'Billy' Eduard Albert. (2023) Contact Report 857. 
+  (https://www.figu.org/ch/files/downloads/kontaktberichte/figu_kontaktbericht_857.pdf). English translation (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_857)
 
 
 ## Return to
