@@ -43,6 +43,10 @@
 - [CR857] Meier, 'Billy' Eduard Albert. (2023) Reporte de Contacto 857. 
   (https://www.figu.org/ch/files/downloads/kontaktberichte/figu_kontaktbericht_857.pdf). Traducción al inglés (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_857)
 
+<a name="CR860"></a>
+- [CR860] Meier, 'Billy' Eduard Albert. (2023) Reporte de Contacto 860. 
+  (https://www.figu.org/ch/files/downloads/kontaktberichte/figu_kontaktbericht_860.pdf). Traducción al inglés (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_860)
+
 
 ## Regresar a
 
