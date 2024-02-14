@@ -47,7 +47,10 @@
 - Do not exceed the limits in your knowledge and remain with the truth so you don't confuse the conscience and the intellect and fall prey to megalomania that can drive humanity to ruin. [[GoT 4:225](./references.md/#GoT)]
 - Fulfill the contracts you make with each other, as well as the unwritten contracts that exist between you and [Creation](./definitions.md/#creation) so that it shall be well with you. [GoT 5:1](./references.md/#GoT)]
 - You may eat any animal and creature as long as it is not poisonous to you, may be bred and/or hunted if you are allowed to hunt it, but do not poach or hunt for the pure lust of killing. [[GoT 5:2](./references.md/#GoT)]
-- It is forbidden to eat any animal or creature that has died on its own, or has been strangled, decapitated or beaten to death as the meat is damaged by the vibration of the psyche and can affect your psyche and behavior. [[GoT 5:3](./references.md/#GoT)] 
+- It is forbidden to eat any animal or creature that has died on its own, or has been strangled, decapitated or beaten to death as the meat is damaged by the vibration of the psyche and can affect your psyche and behavior. [[GoT 5:3](./references.md/#GoT)]
+- Forbidden to eat the flesh of carcasses eaten by predators because their breath is contaminated with mouth bacteria that are not for humans. Also forbidden animals sacrificed for offerings by those who do not understand the vanity of such offerings. [[GoT 5:4](./references.md/#GoT)]
+- Do not make offerings because the truth of the laws and commandments of the power of creation does not require offerings of any kind. [[GoT 5:5](./references.md/#GoT)]
+
 
 ## Continue to
 

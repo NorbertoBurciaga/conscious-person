@@ -47,7 +47,9 @@
 - No excedas los límites de tu conocimiento y permanece en la verdad para no confundir a la conciencia y al intelecto y caer en la megalomanía que puede llevar a la humanidad a la ruina. [[GoT 4:225](./referencias.md/#GoT)]
 - Cumplir los contratos que hacen entre ustedes, así como los contratos no escritos que existen entre tu y la [Creación](./definiciones.md/#creacion) para que te vaya bien. [[GoT 5:1](./referencias.md/#GoT)]
 - Puedes comer cualquier animal o criatura mientras no sea venenoso para tí, pueden ser criados y/o cazados si te es permitido cazarlo, pero no cazes furtivamente o por puro placer de matar. [[GoT 5:2](./referencias.md/#GoT)]
-- Prohibido comer cualquier animal o criatura que haya muerto por si misma, o que haya sido estrangulada, decapitada o golpeada hasta la muerte ya que la carne se daña por la vibración de la psique y puede afectar tu psique y tu comportamiento. [[GoT 5:3](./referencias.md/#GoT)] 
+- Prohibido comer cualquier animal o criatura que haya muerto por si misma, o que haya sido estrangulada, decapitada o golpeada hasta la muerte ya que la carne se daña por la vibración de la psique y puede afectar tu psique y tu comportamiento. [[GoT 5:3](./referencias.md/#GoT)]
+- Prohibido comer la carne de cadáveres comidos por depredadores porque su aliento está contaminado con bacterias bucales que no son para los humanos. También prohibido animales sacrificados para ofrendas por aquellos que no comprenden la vanalidad de tales ofrendas. [[GoT 5:4](./referencias.md/#GoT)]
+- No hagas ofrendas pues la verdad de las leyes y mandamientos del poder de la creación no requiere ofrendas de ningún tipo. [[GoT 5:5](./referencias.md/#GoT)]
 
 
 ## Continuar con
