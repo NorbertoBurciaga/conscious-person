@@ -6,7 +6,7 @@
 - **Creation** - It is a form of existence ([Wesenheit](#wesenheit)) of immense mass of spiritual neutral energy. [[OM 1:1](./references.md#om)] [[FIGU-Bulletin 68](./references.md#FB68)] "It is spirit in its pure state and immeasurable in its wisdom, knowledge, love and in its harmony and truth." [[Dekalog/Dodekalog/Dodekalog](./references.md#DD)] As a form of natural spiritual energy, the Universal Consciousness of Creation is a purely causal evolutionary form of spiritual energy from which natural laws and commandments are given. Everything in the Universal Consciousness of Creation is absolutely balanced, therefore it is positive-neutral in every way as it contains 100% positive and 100% negative resulting in an absolute balance of the two energies. [[OM 1:1](./references.md#om)] [[FIGU-Bulletin 68](./references.md#FB68)] [[Got 2:362](./references.md/#GoT)] [[Got 4:149](./references.md/#GoT)]  
     It is solely the truth of all reality (BEING) and of all activity (existence) in the universe and also encompases life. [[Got 4:162](./references.md/#GoT)]
     
-<a name="true-love"></a>.
+<a name="true-love"></a>
 - **true Love** - It is an eternal state and an attitude of immutability in all spheres and situations of life, and makes human beings become love itself. [[CR 857](./references.md/#CR857)] It is wisdom at its best form [[CR 10:60](./references.md/#CR10)], it is a constant, persistent, ironclad state [[CR 10:71](./references.md/#CR10)] that tends to friendliness and patience, it embodies all that is hopeful and overwhelming, that which is good and truly human. [[CR 857](./references.md/#CR857)]
 
 <a name="universo"></a>
