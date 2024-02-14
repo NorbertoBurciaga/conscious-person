@@ -4,3 +4,5 @@ Information about everything pertaining to a conscious person, not necessarily h
 
 - [English](./english/content.md)
 - [Español](./español/contenido.md)
+
+![peace meditation](./english/images/peace-symbol.webp)
