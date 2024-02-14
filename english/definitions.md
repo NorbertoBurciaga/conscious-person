@@ -10,7 +10,7 @@
 - **true Love** - It is an eternal state and an attitude of immutability in all spheres and situations of life, and makes human beings become love itself. [[CR 857](./references.md/#CR857)] It is wisdom at its best form [[CR 10:60](./references.md/#CR10)], it is a constant, persistent, ironclad state [[CR 10:71](./references.md/#CR10)] that tends to friendliness and patience, it embodies all that is hopeful and overwhelming, that which is good and truly human. [[CR 857](./references.md/#CR857)]
 
 <a name="universo"></a>
-- **Universe** - Also called [Creationn](#creation) o Universal Conciousness. [[FIGU](./references.md#FIGU)]  It is a double-helix, egg-shaped configuration that simultaneously constitutes the Universe in its growing expansion. Its pulsating double-helix arms live as spiritual energy, while rotating against each other. [[VAA](./references.md#VAA)]
+- **Universe** - Also called [Creation](#creation) o Universal Conciousness. [[FIGU](./references.md#FIGU)]  It is a double-helix, egg-shaped configuration that simultaneously constitutes the Universe in its growing expansion. Its pulsating double-helix arms live as spiritual energy, while rotating against each other. [[VAA](./references.md#VAA)]
 
 <a name="wesen"></a>
 - **Wesen** - "Is an independently existing life-form with its own individuality and personality in impulsive, instinctive or conscious form of consciousness with specific evolutionary possibilities oriented to all with its own physical, psychic, conscious, partly conscious, unconscious, impulsive or instinctive forms of development. instinctive forms of development (human, animal, animal and plant)." [[FIGU-Bulletin 68](./references.md#FB68)]
