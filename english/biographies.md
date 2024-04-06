@@ -3,7 +3,7 @@
 # Biographies
 
 - [Jmmanuel](./biographies/jmmanuel.md)
-
+- [Ptaah](./biographies/ptaah.md)
 
 ## Return to
 
