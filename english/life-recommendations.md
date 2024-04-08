@@ -3,6 +3,7 @@
 # Life recommendations
 
 - You shall have no other mights and no gods, tin gods and holy ones next to the [Creation](./definitions.md/#creation). [[Dekalog/Dodekalog 1](./references.md#DD)]
+- Be knowledgeable about the laws and recommendations of [Creation](./definitions.md/#creation) and [nature](./definitions.md/#nature) to fulfill the rules and values of life, so that you may lead the present existence to love, peace and freedom, as well as to harmony and wisdom. [[GoT 1:1](./references.md/#GoT)]
 - Fulfill the laws and recommendations of [Creation](./definitions.md/#creation) in order to have a good life, honourable pleasure, so that you do not go into confusion in your existence and do not do unright. [[GoT 4:90](./references.md/#GoT)] [[GoT 4:94](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)] [[GoT 4:156](./references.md/#GoT)] [[GoT 4:158](./references.md/#GoT)] [[GoT 4:163](./references.md/#GoT)] [[GoT 4:173](./references.md/#GoT)]
 - Obey the teachings of truth, life and spirit to obtain grace, love, freedom, peace and harmony. [[GoT 4:95](./references.md/#GoT)] [[GoT 4:102](./references.md/#GoT)] [[GoT 4:113](./references.md/#GoT)] [[GoT 4:210](./references.md/#GoT)] [[GoT 4:227](./references.md/#GoT)]
 - Do not aspire to knowledge beyond your understanding because instead of being knowledgeable and wise you would fall into confusion. [[GoT 4:137](./references.md/#GoT)]

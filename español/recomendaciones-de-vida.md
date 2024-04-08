@@ -3,6 +3,7 @@
 # Recomendaciones de vida
 
 - No tendrás otros poderes, ni dioses, ídolos ni santos junto a la [Creación](./definiciones.md/#creacion). [[Dekalog/Dodekalog 1](./referencias.md/#DD)]
+- Conoce las leyes y recomendaciones de la [Creación](./definiciones.md/#creacion) y de la [naturaleza](./definiciones.md/#naturaleza) para cumplir las reglas y valores de la vida, para que dirijan la presente existencia hacia el amor, paz y libertad, así también hacía la armonía y sabiduría. [[GoT 1:1](./referencias.md/#GoT)]
 - Cumplir con las leyes y mandamientos de la [Creación](./definiciones.md/#creacion) para tener una buena vida, honorablemente agradable, para que no te extravíes en tu existencia y no hagas el mal. [[GoT 4:90](./referencias.md/#GoT)] [[GoT 4:94](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)] [[GoT 4:156](./referencias.md/#GoT)] [[GoT 4:158](./referencias.md/#GoT)] [[GoT 4:163](./referencias.md/#GoT)] [[GoT 4:173](./referencias.md/#GoT)]
 - Obedecer las enseñanzas de la verdad, vida y espíritu para obtener gracia, amor, libertad, paz y armonía. [[GoT 4:95](./referencias.md/#GoT)] [[GoT 4:102](./referencias.md/#GoT)] [[GoT 4:113](./referencias.md/#GoT)] [[GoT 4:210](./referencias.md/#GoT)] [[GoT 4:227](./referencias.md/#GoT)]
 - No aspirar a conocimiento mas allá de tu entendimiento porque en lugar de ser conocedor y sabio caerás en confusión. [[GoT 4:137](./referencias.md/#GoT)]
