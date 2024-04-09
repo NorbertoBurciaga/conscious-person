@@ -10,7 +10,7 @@
     Es la verdad de toda realidad(SER) y de todo efecto(existencia) en el universo y abarca también la vida.[[GoT 4:162](./referencias.md/#GoT)]
 
 <a name=“naturaleza”></a>
-- **naturaleza** - La totalidad de todos los seres vivos, ecosistemas y fenómenos naturales dentro del universo. El amor de la Creación la cual es expresa visiblemente. Sus leyes están maravillosamente organizadas. [[CL](./referencias.md/#CL)]
+- **naturaleza** - La totalidad de todos los seres vivos, ecosistemas y fenómenos naturales dentro del universo. El amor de la Creación que se expresa visiblemente. Sus leyes están maravillosamente organizadas. [[CL](./referencias.md/#CL)]
 
 <a name="universo"></a>
 - **Universo** - También es llamado [Creación](#creacion) o Conciencia Universal. [[FIGU](./referencias.md#FIGU)]  Es una configuración de doble hélice en forma de huevo, que constituye simultáneamente el Universo en su creciente expansión. Sus brazos pulsantes de doble hélice viven como energía espiritual, a la vez que giran uno contra el otro. [[VAA](./referencias.md#VAA)] 
