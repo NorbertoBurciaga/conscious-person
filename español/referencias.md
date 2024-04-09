@@ -31,6 +31,10 @@
 - [VAA] Boletín informativo Voz de la Era de Acuario (Stimme der Wassermannzeit) No. 89.  (Diciembre 1993). 
 (https://ca.figu.org/what-is-the-creation-.html)
 
+<a name="CL"></a>
+- [CL] Meier, 'Billy' Eduard Albert. El amor de la Creación.
+(https://www.futureofmankind.co.uk/Billy_Meier/Creation%27s_Love)
+
 <a name="CR10"></a>
 - [CR10] Meier, 'Billy' Eduard Albert. (1975) Reporte de Contacto 10. 
   (https://shop.figu.org/b%C3%BCcher/plejadisch-plejarische-kontaktberichte-block-1). Traducción al inglés (https://www.futureofmankind.co.uk/Billy_Meier/Contact_Report_010)

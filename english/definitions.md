@@ -10,7 +10,7 @@
 - **true Love** - It is an eternal state and an attitude of immutability in all spheres and situations of life, and makes human beings become love itself. [[CR 857](./references.md/#CR857)] It is wisdom at its best form [[CR 10:60](./references.md/#CR10)], it is a constant, persistent, ironclad state [[CR 10:71](./references.md/#CR10)] that tends to friendliness and patience, it embodies all that is hopeful and overwhelming, that which is good and truly human. [[CR 857](./references.md/#CR857)]
 
 <a name=“nature”></a>
-- **nature** - The totality of all living beings, ecosystems, and natural phenomena within the universe.
+- **nature** - The totality of all living beings, ecosystems, and natural phenomena within the universe. The love of Creation, which is expressed visibly. Its laws are so wonderfully arranged. [[CL](./references.md/#CL)]
 
 <a name="universe"></a>
 - **Universe** - Also called [Creation](#creation) o Universal Conciousness. [[FIGU](./references.md#FIGU)]  It is a double-helix, egg-shaped configuration that simultaneously constitutes the Universe in its growing expansion. Its pulsating double-helix arms live as spiritual energy, while rotating against each other. [[VAA](./references.md#VAA)]
