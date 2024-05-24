@@ -19,8 +19,9 @@
 - In an affection bond you will not find a perfect balance, but if you make an effort the best relative balance can be achieved. [[GoT 4:166](./references.md/#GoT)]
 - Take as friends the fair, the righteous and the uncorrupted ones for true honor is with them. [[GoT 4:176](./references.md/#GoT)]
 - Speak with truth and equitableness for someone who had an unright. [[GoT 4:187](./references.md/#GoT)]
+- Do not create religions, sects, rites or habits outside the teachings of truth, life and spirit to recognize new things and evolve. [[GoT 5:10](./references.md/#GoT)]
 - 
- 
+
 
 ## Return to
 

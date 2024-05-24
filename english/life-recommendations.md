@@ -60,6 +60,7 @@
 
 ### Spirit
 
+- Do not make invocations to the consciousness at certain times or in certain amounts so as not to fall into habit, except when it is group meditation. [GoT 5:11](./references.md/#GoT)]
 
 
 ### Nutrition

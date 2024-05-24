@@ -14,7 +14,7 @@
 
 <a name="universo"></a>
 - **Universo** - También es llamado [Creación](#creacion) o Conciencia Universal. [[FIGU](./referencias.md#FIGU)]  Es una configuración de doble hélice en forma de huevo, que constituye simultáneamente el Universo en su creciente expansión. Sus brazos pulsantes de doble hélice viven como energía espiritual, a la vez que giran uno contra el otro. [[VAA](./referencias.md#VAA)] 
-    
+
 <a name="wesen"></a>
 - **Wesen** - "Es una forma de vida de existencia independiente con su propia individualidad y personalidad en un impulso, una forma de conciencia instintiva o conciente que está específicamente dirigida hacia todas las posibilidades de la evolución, y con su propio impulso físico, psíquico, conciente, parte conciente, inconciente o formas de desarrollo relacionadas al instinto (el ser humano, animales, criaturas y plantas)." [[FIGU-Bulletin 68](./referencias.md#FB68)]
 

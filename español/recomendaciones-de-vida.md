@@ -60,6 +60,8 @@
 
 ### Espíritu
 
+- No hagas invocaciones a la conciencia en ciertos momentos ni en ciertas cantidades para no caer en hábito, excepto cuando sea meditación en grupo. [[GoT 5:11](./referencias.md/#GoT)]
+
 
 ### Nutrición
 
