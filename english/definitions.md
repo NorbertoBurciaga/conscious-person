@@ -15,6 +15,9 @@
 <a name="universe"></a>
 - **Universe** - Also called [Creation](#creation) o Universal Conciousness. [[FIGU](./references.md#FIGU)]  It is a double-helix, egg-shaped configuration that simultaneously constitutes the Universe in its growing expansion. Its pulsating double-helix arms live as spiritual energy, while rotating against each other. [[VAA](./references.md#VAA)]
 
+<a name="truth"></a>
+- **Truth** - Inner recognition that arises through rationality, intellect, true knowledge, and wisdom that are fully free from belief.[[GoT 2:97](./references.md/#GoT)]
+
 <a name="wesen"></a>
 - **Wesen** - "Is an independently existing life-form with its own individuality and personality in impulsive, instinctive or conscious form of consciousness with specific evolutionary possibilities oriented to all with its own physical, psychic, conscious, partly conscious, unconscious, impulsive or instinctive forms of development. instinctive forms of development (human, animal, animal and plant)." [[FIGU-Bulletin 68](./references.md#FB68)]
 
